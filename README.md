@@ -1,1 +1,1 @@
-# Rule Shadowrocket+_Egern  zalo VN
+# Rule Shadowrocket+Egern  zalo VN
